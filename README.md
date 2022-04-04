@@ -3,3 +3,5 @@
 Will Smith smacked Chris Rock
 
 mr rick is bald
+
+rocking a turban
